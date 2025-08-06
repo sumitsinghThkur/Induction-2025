@@ -2,7 +2,7 @@
 Sumit singh CSE f 
 Orientation Summary
 
-📅 Day 1: Introduction & Inspiration
+ Day 1: Introduction & Inspiration
 
 Mr. Harmsinran Singh Introduced students to the college, its values, expectations, and academic environment.
 
@@ -30,7 +30,7 @@ Highlighted the role of engineers in nation-building.
 
 Spoke about civic responsibility, innovation, and serving society through technical excellence.
 
-📅 Day 2: Science, Values & Vision
+Day 2: Science, Values & Vision
 
 Dr. Jaswinder Singh
 
