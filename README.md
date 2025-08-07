@@ -28,9 +28,14 @@ Sh. Ravinder Garg (Chief, Municipal Corporation, Ludhiana)
 
 Highlighted the role of engineers in nation-building.
 
-Spoke about civic responsibility, innovation, and serving society through technical excellence.
+Spoke about civic responsibility, innovation, and serving society through technical excellence.                                
 
-Day 2: Science, Values & Vision
+
+
+DAY =2  Importance of Food in Student Wellness
+
+                                                On the second day of our induction program, we had an expert lecture by Mr. Ashdeep Singh. He spoke about the vital role of food in the overall wellness of students. He explained that good health starts with the right food choices and highlighted how food affects our physical and mental well-being.Mr. Singh discussed the importance of having a healthy digestive system. He shared useful tips on how to improve digestion, such as eating fresh and balanced meals, drinking enough water, and including fiber-rich foods in our diet.Overall, the lecture was very informative. Students learned how making small changes in their eating habits can lead to better health and improved concentration. The session motivated everyone to take care of their health by choosing nutritious food.
+Day 3: Science, Values & Vision
 
 Dr. Jaswinder Singh
 
