@@ -1,3 +1,16 @@
+Dr. Parminder Singh (Dean of Student Wealfare )
+
+Dr. Parminder Singh introduced students to the campus facilities, including the hospital, hostels, library, labs, canteen, and parking. He explained how the student welfare committee works to keep the campus updated and student-friendly.
+
+Amit Kamra (Incharge, DMC Club):
+
+
+Amit Kamra, head of the Digital Media Club (DMC), spoke about skill development and the importance of joining clubs for learning and future opportunities. He explained how the college’s official social media platforms are managed with genuine followers and content, and encouraged first-year students to join the DMC to gain practical skills and experience.
+
+Randhir Singh:
+
+
+Randhir Singh guided students on academic portals and the examination system. He explained how attendance and marks are divided among theory, practicals, internal exams, and university assessments. He also clarified procedures for supplementary and make-up exams, helping students understand how to track their academic progress.
 # Induction-2025
 Sumit singh CSE f 
 Orientation Summary
@@ -72,7 +85,7 @@ Day = 5 Universal Human Values Session
 Developing empathy, clarity, and balanced emotional intelligence
 On the fourth day of our induction program, Priyadarshini Mam delivered an inspiring lecture on Universal Human Values. She explained the meaning of universal human values and talked about the importance of exploring our aspirations, concerns, and making effective plans to liveMam connected these concepts with academic success, career goals, and family expectations. She emphasized that understanding our basic aspirations is essential for happiness and satisfaction in life. She encouraged us to reflect on our goals and set the right priorities, so we can balance personal dreams with family and societal responsibilities. a fulfilling life.During the session, Mam also gave us an assignment on “Basic Human Aspiration and Its Fulfillment,” which involved thinking about our own goals and how to achieve them by setting correct priorities in life.Overall, the lecture was very motivating and helped us realize the importance of values, planning, and self-reflection for a successful academic journey 
 
-Day = 6 Sessions by Jasveer Singh and Lakhbir Singh Khanna
+Day = 6  Sessions by Jasveer Singh and Lakhbir Singh Khanna
 
 During the induction program, we had a very interesting and interactive lecture by Jasveer Singh, the District Resource Person. He talked about the history of Guru Nanak Dev Engineering College and explained the relationship of the college trustees, sharing their values and life truths. Jasveer Singh’s friendly way of talking made all the students feel comfortable and confident, as if we were having a conversation with a friend.
 
@@ -80,4 +93,17 @@ During the induction program, we had a very interesting and interactive lecture 
 After that, Lakhbir Singh Khanna, the incharge of CML, gave a lecture focused on the SAVE portal and the NPTEL courses available there. He explained how these courses are very helpful for BTech engineering students by offering both major and minor certificates, which can open up more job opportunities. Lakhbir Singh Khanna also provided personal counselling, going to each student and guiding them—first by addressing common mistakes publicly, then giving individual feedback to help us improve.
 Both sessions were motivating and provided valuable information for our academic and career growth.
 
+Day = 7
+Dr. Parminder Singh (Dean of Student Wealfare )
 
+Dr. Parminder Singh introduced students to the campus facilities, including the hospital, hostels, library, labs, canteen, and parking. He explained how the student welfare committee works to keep the campus updated and student-friendly.
+
+Amit Kamra (Incharge, DMC Club):
+
+
+Amit Kamra, head of the Digital Media Club (DMC), spoke about skill development and the importance of joining clubs for learning and future opportunities. He explained how the college’s official social media platforms are managed with genuine followers and content, and encouraged first-year students to join the DMC to gain practical skills and experience.
+
+Randhir Singh:
+
+
+Randhir Singh guided students on academic portals and the examination system. He explained how attendance and marks are divided among theory, practicals, internal exams, and university assessments. He also clarified procedures for supplementary and make-up exams, helping students understand how to track their academic progress.
