@@ -1,16 +1,4 @@
-Dr. Parminder Singh (Dean of Student Wealfare )
 
-Dr. Parminder Singh introduced students to the campus facilities, including the hospital, hostels, library, labs, canteen, and parking. He explained how the student welfare committee works to keep the campus updated and student-friendly.
-
-Amit Kamra (Incharge, DMC Club):
-
-
-Amit Kamra, head of the Digital Media Club (DMC), spoke about skill development and the importance of joining clubs for learning and future opportunities. He explained how the college’s official social media platforms are managed with genuine followers and content, and encouraged first-year students to join the DMC to gain practical skills and experience.
-
-Randhir Singh:
-
-
-Randhir Singh guided students on academic portals and the examination system. He explained how attendance and marks are divided among theory, practicals, internal exams, and university assessments. He also clarified procedures for supplementary and make-up exams, helping students understand how to track their academic progress.
 # Induction-2025
 Sumit singh CSE f 
 Orientation Summary
