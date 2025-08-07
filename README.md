@@ -67,4 +67,7 @@ Right understanding of self and surroundings
 
 Building healthy relationships with family and friends
 
+Day = 5 Universal Human Values Session
+
 Developing empathy, clarity, and balanced emotional intelligence
+On the fourth day of our induction program, Priyadarshini Mam delivered an inspiring lecture on Universal Human Values. She explained the meaning of universal human values and talked about the importance of exploring our aspirations, concerns, and making effective plans to liveMam connected these concepts with academic success, career goals, and family expectations. She emphasized that understanding our basic aspirations is essential for happiness and satisfaction in life. She encouraged us to reflect on our goals and set the right priorities, so we can balance personal dreams with family and societal responsibilities. a fulfilling life.During the session, Mam also gave us an assignment on “Basic Human Aspiration and Its Fulfillment,” which involved thinking about our own goals and how to achieve them by setting correct priorities in life.Overall, the lecture was very motivating and helped us realize the importance of values, planning, and self-reflection for a successful academic journey and a happy life.
